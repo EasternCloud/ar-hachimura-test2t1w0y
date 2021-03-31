@@ -1,1 +1,0 @@
-# ar-hachimura-test2t1w0y
